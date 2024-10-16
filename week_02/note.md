@@ -1,0 +1,1 @@
+I got scored 2 for homework 2. I guess because i'm in hurry when I work with it. I'm sad but I will try to do this homework again.
